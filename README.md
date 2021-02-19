@@ -6,4 +6,4 @@
 
 1. [博客园](https://www.cnblogs.com/jimmyfan/p/14412363.html)
 
-2. [微信订阅号](https://mp.weixin.qq.com/s/hFqxjqahUkfGdHnBvWeTlw)
+2. [微信订阅号](https://mp.weixin.qq.com/s/ePBx2YRNzpm7wTrhmll4XQ)
